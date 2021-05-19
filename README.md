@@ -1,0 +1,1 @@
+# Caracter-sticas-elementos-y-ejemplos-de-la-plataforma-IOT-usada-en-clase
